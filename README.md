@@ -1,1 +1,1 @@
-simply training sprint and the right comms
+simply training spring and the right commits
